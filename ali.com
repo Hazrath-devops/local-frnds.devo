@@ -1,2 +1,2 @@
-my strength is shyamala
+my wife is gold
 
